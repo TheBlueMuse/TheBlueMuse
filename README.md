@@ -1,3 +1,5 @@
+![The Blue Muse 11](./6C7E1157-7A84-4583-AAA4-23EAC7A04153.jpeg)
+
 # Hi, I'm Noeli — The Blue Muse 💙
 
 ### AI Creator · Multidisciplinary Artist · Creative Explorer
